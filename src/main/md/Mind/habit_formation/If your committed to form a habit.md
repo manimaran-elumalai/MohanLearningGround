@@ -1,7 +1,7 @@
 # If your committed to form a habit
 * Practice at-least 2 minutes within a day
 * Peform the same set of things, so that you could compare and improve
-* Post your daily update with, Your update is motivation for others, so please update.
+* Post your daily update with, your update is motivation for others, so please update.
 * Appreciate others or chase others or kick others out
 
 # Tips to form habit
